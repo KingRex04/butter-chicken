@@ -1,1 +1,1 @@
-# butter-chicken
+Chunks of grilled chicken cooked in a smooth buttery & creamy tomato based gravy is known as Butter chicken . It was invented by Kundan lal Gujral, who was the owner of a popular restaurant named Moti Mahal in Delhi.
